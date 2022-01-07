@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pinky420
+- 👀 I’m interested in Xianxia, LitRPG, ProgFantasy, Sci-Fi and much more.
+- 🌱 I’m currently learning how to write compelling Lore translateable into code.
+- 💞️ I’m looking to collaborate on any Loot projects
+- 📫 How to reach me - pickyrunga@protonmail.com
